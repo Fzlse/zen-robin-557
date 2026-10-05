@@ -1,6 +1,6 @@
 # 📦 Kms Auto 2026 — Latest Version Free Download (2026)
 
-[![Version](https://img.shields.io/badge/Version-2026-blue?style=flat-square)](https://img.shields.io) [![Platform](https://img.shields.io/badge/Platform-Windows-informational?style=flat-square)](https://img.shields.io) [![Price](https://img.shields.io/badge/Price-Free-success?style=flat-square)](https://img.shields.io)
+![Version](https://img.shields.io/badge/Version-2026-blue?style=flat-square) ![Platform](https://img.shields.io/badge/Platform-Windows-informational?style=flat-square) ![Price](https://img.shields.io/badge/Price-Free-success?style=flat-square)
 
 **KMS Auto 2026** is the most popular Windows and Office activator in 2026. One click activates Windows 11, 10, 8.1, 7 and Microsoft Office — renewed automatically every 180 days. Fully updated for 2026. **Completely free. No registration required. No hidden fees.**
 
